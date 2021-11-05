@@ -11,6 +11,6 @@ Si estás fuera de Argentina, con BuyMeaCoffee en https://www.buymeacoffee.com/m
 
 Con criptomonedas? Claro! Acepto Monero!!!
 
-monero:46s7hUbKGEcW25Vh1hbcEYWSCciEuzmvCX3h9S8XiPTtTiHjxk3cc2L2AMQ5j35ybZMSM8k9vk96bbV9Fpabc9XgELuQbWF
+46s7hUbKGEcW25Vh1hbcEYWSCciEuzmvCX3h9S8XiPTtTiHjxk3cc2L2AMQ5j35ybZMSM8k9vk96bbV9Fpabc9XgELuQbWF
 
 Gracias por tu colaboración!
